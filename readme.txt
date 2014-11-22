@@ -4,3 +4,10 @@ fun
 hi
 hgbfgb
 6 lines WOW!
+
+
+NEXT UPDATE:i have to add other stuff
+lslsls
+slslsl
+ssssss
+llllll
